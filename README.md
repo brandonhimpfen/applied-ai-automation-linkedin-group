@@ -1,1 +1,1 @@
-# applied-ai-automation-linkedin-group
+# Applied AI & Automation LinkedIn Group
